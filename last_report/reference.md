@@ -1,0 +1,3 @@
+- https://digimamalife.com/iphone-ipad-battery-size
+- https://www.nttdocomo.co.jp/product/?icid=CRP_TOP_to_CRP_PRD
+- 
